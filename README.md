@@ -1,5 +1,5 @@
-# <a href="https://1295holiganbet.com/tr/"> JOJOBET GİRİŞ TIKLA </a>
-<a href="https://ornek-link.com" target="_blank"><img src="https://r.resimlink.com/DVZ9_.png" alt="Görsel" style="max-width:100%;height:auto;border:2px solid #0077cc;border-radius:10px;"></a>
+# <a href="http://1258jojobet.com/"> JOJOBET GİRİŞ TIKLA </a>
+<a href="http://1258jojobet.com/" target="_blank"><img src="https://r.resimlink.com/DVZ9_.png" alt="Görsel" style="max-width:100%;height:auto;border:2px solid #0077cc;border-radius:10px;"></a>
 # <a href="https://1295holiganbet.com/tr/"> JOJOBET GİRİŞ TIKLA </a>
 
 # Jojobet - Jojobet Güncel Giriş Adresimize Tıklayın - Jojobet Güvenilir Baglantı Adresi
